@@ -1,0 +1,3 @@
+"Bismillahi"
+"Alhamdulillah"
+500
